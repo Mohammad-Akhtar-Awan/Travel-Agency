@@ -1,0 +1,1 @@
+Margalla Travel Agency is a virtual entity.
